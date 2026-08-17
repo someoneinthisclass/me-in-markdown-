@@ -1,12 +1,13 @@
 # me in markdown 2026
 ## to MR aiello ##
 
-**Hello Mr aiello i am Rami Heum. I am one of your students in your computer science class in third  period. 
+**Hello Mr aiello i am Rami H . I am one of your students in your computer science class in third  period. 
 I am in 9th grade. I was in PRCS for all my middleschool years.  Right now my favorite  subject for school is history.this class i am looking forward to learnign how to code.
 -ing forward to learning. right now going to try out for the  chs soccer team. I currenlty play right back mostly. 
 
-I like to play sport play viodegames are some hobbys i have. My favorite move right now is **dunepart 2**. My current most played video game **Arma reforger**, currenlty i like grand stratgey games are my favorite game genre. 
+I like to play sport play viodegames are some hobbys i have. My favorite move right now is **dunepart 2**. My current most played video game **Arma reforger**, currently  i like grand stratgey games are my favorite game genre.  
  
+ Iook forward to the coming year.
  Bye :)
 
 
