@@ -7,9 +7,7 @@ I am in 9th grade. I was in PRCS for all my middleschool years.  Right now my fa
 
 I like to play sport play viodegames are some hobbys i have. My favorite move right now is **dunepart 2**. My current most played video game **Arma reforger**, currenlty i like grand stratgey games are my favorite game genre. 
  
+ Bye :)
 
 
-
-
-
-
+![stuff i like](mycollage.png)
